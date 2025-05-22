@@ -1,3 +1,5 @@
+#q群免费提供加速器vpn梯子
+
 游戏自动脚本（网上收集的，请自行点击，观看学习）
 
 崩坏3：https://github.com/Aues6uen11Z/HonkaiHelper?tab=readme-ov-file
